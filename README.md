@@ -6,5 +6,5 @@ AndyStore | Responsive web template for mobile apps with HTML CSS JS
 
 ## Contact me
 [Instagram](https://instagram.com/munafio) <br>
-[Facebook](https://facebook.com/munafio) <br>
+[Facebook](https://www.facebook.com/rean.try?mibextid=9R9pXO) <br>
 [Twitter](https://twitter.com/munaf_aqeel_m) <br>
